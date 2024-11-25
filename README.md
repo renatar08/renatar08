@@ -1,0 +1,4 @@
+- 👋 Olá me chamo Renata
+- 👀 sou estudante do ensino médio
+- 🌱  CCM Olvo bilac
+-
